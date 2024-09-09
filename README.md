@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Ana Luiza Colombi Sanfelice
+- 👀  I’m currently a Computer Engineering Student at INF/UFRGS.
+- 📫 How to reach me: sanfelice.anac@gmail.com
